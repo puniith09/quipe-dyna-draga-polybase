@@ -1,1 +1,0 @@
-# quipe-dyna-draga-polybase
